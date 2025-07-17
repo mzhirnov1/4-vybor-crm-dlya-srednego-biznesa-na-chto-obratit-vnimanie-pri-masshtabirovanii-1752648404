@@ -1,4 +1,4 @@
-# 4. Выбор CRM для среднего бизнеса: на что обратить внимание при масштабировании?
+# Choosing the Right CRM for Scaling Your Mid-Sized Business: A Comprehensive Guide
 
 This article is also available in other languages:
 
